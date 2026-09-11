@@ -1,1 +1,0 @@
-Racunalni-vid-LV
